@@ -1,0 +1,6 @@
+# Welcome
+👋 Hi, I’m @Slavik102
+👀 I’m interested in NFT
+🌱 I’m currently learning ...
+💞️ I’m looking to collaborate on ...
+📫 How to reach me redmi3sufa@gmail.com
